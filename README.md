@@ -1,2 +1,2 @@
 # MagnezSolana
-TO JEST BIZMEMS #BISBALT
+<div align="center"><img alt="Logo" src="znajdzmnie.png"/></div>
