@@ -1,0 +1,2 @@
+# MagnezSolana
+TO JEST BIZMEMS #BISBALT
